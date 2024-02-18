@@ -1,4 +1,0 @@
-snajnsnjnj iijik
-
-
-thi
